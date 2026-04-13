@@ -3,7 +3,7 @@
 🚀 Play the exciting Point Run game online — no download required!
 
 👉 Play Now:
-https://rn7553675-maker.github.io/Point-Run/
+https://pointrun.online/
 
 ---
 
